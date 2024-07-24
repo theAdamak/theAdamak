@@ -1,1 +1,1 @@
-nothing to say--just learing..
+nothing to say--just learning..
